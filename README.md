@@ -14,10 +14,3 @@
 if i AM cuddling you, i'll probably stay there the entire time.......feel free to leave you're not being held hostage :,3
 
 <sub> people under 15 refrain from interacting unless I already know you, please ^_^;
-
-<sub> thank you to whoever cuddles me / lets me cuddle them, im trying my best to get out of my comfort zone bleuururghh
-
-<sub> I might notttt answer sometimes if I dont feel talkative
-
-<sub> I forget I'm on pt sometimes, I apologize if I don't answer to your whispers :,)
-</p>
