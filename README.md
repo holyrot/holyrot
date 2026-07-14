@@ -1,16 +1,23 @@
+<img src="https://files.catbox.moe/iur4xe.webp" width="350" align="right" alt="woof">
 
-<sub> [rentry](https://rentry.co/0130lostpup) ✦ [rentry 2](https://rentry.co/classifiedriley) ✦ [ata](https://batherdal.atabook.org/) ✦ [guns.lol](https://guns.lol/0130) ✦ [prns.page](https://en.pronouns.page/@0130)
+<table>
+    <tr>
+      <td align="center"
+      <td>$\color{#412273}{\textsf{lychee}}$ $\color{#5A2E85}{\textsf{>–𐋅–∣ᐷ}}$ $\color{#6C3485}{\textsf{18 years old}}$
+        
+$\color{#412273}{\textsf{he}}$ $\color{#5A2E85}{\textsf{him}}$ $\color{#6C3485}{\textsf{Ɛ=3}}$ $\color{#83369C}{\textsf{w2i .. c+h ALWAYS welcomed freely !}}$<br>
+$\color{#5B207D}{\textsf{I suggest reading my pages before interacting !!}}$<br>
+$\color{#6A1D96}{\textsf{no crazy DNI list, just the normal (-15 dni) .. i block freely}}$<br>
+      </td>
+    </tr>
+  </table>
+  </div>
+  <div align="left">
 
-<div align="center">
+  [rentry](https://rentry.co/0130lostpup) ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$  ‎ [rentry 2](https://rentry.co/classifiedriley)‎ ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [ata](https://bathedral.atabook.org/)‎ ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [guns.lol](https://guns.lol/0130) ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [prns.page](https://en.pronouns.page/@0130)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+<div align="left">
   
-![](https://komarev.com/ghpvc/?username=ciderfish&color=000000&label=🪽)           
+![](https://komarev.com/ghpvc/?username=ciderfish&color=7F26B5&label=𑣲)           
 <div align="center">
 
-<sub> ‼️‼️I suggest reading my main/longer rentry b4 interacting with me‼️‼️
-
-<sub> if i ever have iwcare in my name, i promise im not tryng to be cringe ahaha..........i am most likely in one of my limbo moods and am just warning you !
-
-<sub> I'm naturally a quiet person!!!
-if i AM cuddling you, i'll probably stay there the entire time.......feel free to leave you're not being held hostage :,3
-
-<sub> people under 15 refrain from interacting unless I already know you, please ^_^;
+<img src="https://files.catbox.moe/45hrtl.webp" alt="banner" width="600"></a>
