@@ -14,7 +14,7 @@ $\color{#6A1D96}{\textsf{no crazy DNI list, just the normal (-15 dni) .. i block
   </div>
   <div align="left">
 
-  [rentry](https://rentry.co/0130lostpup) ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$  ‎ [rentry 2](https://rentry.co/classifiedriley)‎ ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [ata](https://bathedral.atabook.org/)‎ ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [guns.lol](https://guns.lol/0130) ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [prns.page](https://en.pronouns.page/@0130)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+  [rentry](https://rentry.co/0130lostpup) ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$  ‎ [rentry 2](https://rentry.co/classifiedriley)‎ ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [ata](https://cemeterikiss.atabook.org/)‎ ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [guns.lol](https://guns.lol/0130) ‎ ‎ $\color{#4d27ac}{\textsf{⦮ ⦯}}$   [prns.page](https://en.pronouns.page/@0130)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 <div align="left">
   
 ![](https://komarev.com/ghpvc/?username=ciderfish&color=7F26B5&label=𑣲)           
