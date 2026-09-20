@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/iur4xe.webp" width="350" align="right" alt="woof">
+<img src="https://files.catbox.moe/fqxywh.webp" width="350" align="right" alt="woof">
 
 <table>
     <tr>
@@ -20,4 +20,4 @@ $\color{#ff7195}{\textsf{no crazy DNI list, just the normal (-15 dni) .. i block
 ![](https://komarev.com/ghpvc/?username=ciderfish&color=ff9bc5&label=𑣲)           
 <div align="center">
 
-<img src="https://files.catbox.moe/45hrtl.webp" alt="banner" width="600"></a>
+<img src="https://files.catbox.moe/wh9ak6.webp" alt="banner" width="600"></a>
