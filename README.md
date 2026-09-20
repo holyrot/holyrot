@@ -3,7 +3,7 @@
 <table>
     <tr>
       <td align="center"
-      <td>$\color{#412273}{\textsf{lychee}}$ $\color{#5A2E85}{\textsf{>–𐋅–∣ᐷ}}$ $\color{#6C3485}{\textsf{18 years old}}$
+      <td>$\color{#412273}{\textsf{cooper}}$ $\color{#5A2E85}{\textsf{>–𐋅–∣ᐷ}}$ $\color{#6C3485}{\textsf{18 years old}}$
         
 $\color{#412273}{\textsf{he}}$ $\color{#5A2E85}{\textsf{him}}$ $\color{#6C3485}{\textsf{Ɛ=3}}$ $\color{#83369C}{\textsf{w2i .. c+h ALWAYS welcomed freely !}}$<br>
 $\color{#5B207D}{\textsf{I suggest reading my pages before interacting !!}}$<br>
