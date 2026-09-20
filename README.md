@@ -3,11 +3,11 @@
 <table>
     <tr>
       <td align="center"
-      <td>$\color{#412273}{\textsf{cooper}}$ $\color{#5A2E85}{\textsf{>–𐋅–∣ᐷ}}$ $\color{#6C3485}{\textsf{18 years old}}$
+      <td>$\color{#ffc2e8}{\textsf{cooper}}$ $\color{#ffb8e1}{\textsf{>–𐋅–∣ᐷ}}$ $\color{#ffafd8}{\textsf{18 years old}}$
         
-$\color{#412273}{\textsf{he}}$ $\color{#5A2E85}{\textsf{him}}$ $\color{#6C3485}{\textsf{Ɛ=3}}$ $\color{#83369C}{\textsf{w2i .. c+h ALWAYS welcomed freely !}}$<br>
+$\color{#ffa5cf}{\textsf{he}}$ $\color{#ff9bc5}{\textsf{him}}$ $\color{#ff91ba}{\textsf{Ɛ=3}}$ $\color{#ff86af}{\textsf{w2i .. c+h ALWAYS welcomed freely !}}$<br>
 $\color{#5B207D}{\textsf{I suggest reading my pages before interacting !!}}$<br>
-$\color{#6A1D96}{\textsf{no crazy DNI list, just the normal (-15 dni) .. i block freely}}$<br>
+$\color{#ff7ca2}{\textsf{no crazy DNI list, just the normal (-15 dni) .. i block freely}}$<br>
       </td>
     </tr>
   </table>
