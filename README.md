@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/fqxywh.webp" width="350" align="right" alt="woof">
+<img src="https://media.discordapp.net/attachments/1138201092153425920/1551415658028343357/Untitled781_20260920221152.png?ex=6ab1e3ec&is=6ab0926c&hm=ea1bfc85f276cf9dc3e85a2cb38df39bf110cd8cee19220a45c8701f65e569f4&=&format=webp&quality=lossless&width=640&height=528" width="350" align="right" alt="woof">
 
 <table>
     <tr>
